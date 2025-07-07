@@ -15,4 +15,4 @@
 避免访问非法站点，以确保个人隐私和数据安全。
 通过正规渠道观看，你可以享受优质、免费的日本AV资源，获得最佳观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/td20250707/td15 ）</span>
